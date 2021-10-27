@@ -1,4 +1,4 @@
 # Mad-Scripts
-Roblox Scripts i have made since the past and time so check them out
+Scripts i have made since the past and time so check them out
 
 Learn them and try them out all free for Use!
